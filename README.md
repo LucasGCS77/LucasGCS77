@@ -1,4 +1,4 @@
-## Hi! I'm Lucas! Welcome 🤘🏻😎
+## Hi! I'm Lucas! Welcome!
 
  <div>
    <a href="https://github.com/LucasGCS77">
